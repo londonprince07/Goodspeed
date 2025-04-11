@@ -1,0 +1,2 @@
+# Goodspeed
+Always active.
